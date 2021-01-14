@@ -1,1 +1,1 @@
-### Enough of the artist to draw freely upon my imagination.
+### Enough of an artist to draw freely upon my imagination.
